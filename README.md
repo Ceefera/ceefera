@@ -25,7 +25,7 @@
 
 - 📄 Know about my experiences [https://github.com/Ceefera/ceefera](https://github.com/Ceefera/ceefera)
 
-- ⚡ Fun fact **Hello, E gbesewa**
+- ⚡ Fun fact **I think i'm funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
